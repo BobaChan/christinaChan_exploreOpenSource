@@ -11,4 +11,7 @@ Collecting demographics would be helpful to determine the populations Delilah is
 Changes include making content more inclusive / diverse to attract a wider range of people and making it known that her app is meant for everyone. 
 Along with these immediate changes, she can make long term plans to connect with consumers and others to see how she can improve the app and expand her reach.
 
+
+Awesome idea, Christina!!!
+
 This looks so good! 
